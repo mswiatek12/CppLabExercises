@@ -1,1 +1,1 @@
-                                                Quick exercises I have done during my uni course :)
+          Quick exercises I have done during my uni course :)
